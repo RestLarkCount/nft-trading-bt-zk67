@@ -1,4 +1,4 @@
-# 
+# ultimate bot sniper NFT addons é o melhor bot sniper NFT addons com calculadora de lucros e estratégias de flip. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
